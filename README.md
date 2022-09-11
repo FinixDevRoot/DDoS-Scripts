@@ -1,4 +1,5 @@
 Many Scripts Will Be Added Every Day💻
+Better use a vps to attack 📠
 
 
 
